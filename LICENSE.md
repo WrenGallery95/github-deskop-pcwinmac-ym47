@@ -1,4 +1,4 @@
-# 
+# Oficial GitHub Desktop plugins para Mac OS | Seguro GitHub Desktop plugins para PC Windows. Con espacios de trabajo en equipo y monitor de actividad — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
